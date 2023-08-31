@@ -1,0 +1,6 @@
+- MOVERS NOT SHAKERS
+- HOW YOU MOVE IS UP TO YOU
+- "Movers, Not Shakers! are a New York moving company. With over two decades of experience and 20,000 successful relocations behind us, our New York movers have the skills and resources to execute any move. Whether you need local, long-distance, or interstate moving services, we will ensure everything goes smoothly and sustainably. We also provide packing and storage solutions in New York. We have trucks that run on bio-diesel and offer reusable plastic bins that save over 80 pounds of cardboard per move and more than 1,000 trees a year. Give us a call so we can create a tailored moving plan for you. Call now, and find out why we are the moving company NYC residents trust."
+- https://moversnotshakers.com/
+- 718-957-8207
+- 177 Dwight St., Brooklyn, NY 11231
